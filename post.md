@@ -1,2 +1,0 @@
-#dotoryyy
-##JS😵
