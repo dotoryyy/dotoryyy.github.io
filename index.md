@@ -1,3 +1,3 @@
-# dotoryyy
+# dotoryyy🌰
 ## JS😵
 
